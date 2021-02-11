@@ -1,3 +1,3 @@
 # humble-boy
-The older the more sought after.
+The elder the more sought after.
 damn it
